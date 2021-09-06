@@ -1,0 +1,1 @@
+squeeze half a lemon to a glass, add sugar or honey to it , finally add water and stir well, now you can enjoy your lemonade
